@@ -32,7 +32,7 @@ Cover the bowl in plastic wrap and marinate in the fridge for at least one hour.
 
 Chop up the bell peppers into pieces that are about the same dimensions as your pork. If you're using fresh pineapple now's the time to chop it up into chunks too.
 
-Take the pork out and pour the liquid into the pan. Add the ketchup, Worcestershire sauce, vinegar, and brown sugar. Stir well, then simmer for around ten to fifteen minutes until it is hot and reduced to a gravy-like consistency.
+Take the pork out and pour the liquid into the pan. Add the ketchup, Worcestershire sauce, vinegar, and brown sugar. You can also add hot sauce or chili extract if you're after more heat. Stir well, then simmer for around ten to fifteen minutes until it is hot and reduced to a gravy-like consistency.
 
 While the sauce is reducing, construct the skewers from alternating pieces of pork, pineapple, and pepper. When the sauce is thickened sufficiently, baste it onto the skewers.
 
