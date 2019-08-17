@@ -10,8 +10,8 @@ Tomato ketchup with ghost peppers. It's spicy.
 * 2-5tsp freshly ground black pepper (to taste)
 * 1tsp kosher salt
 * 1tsp oregano
-* 1/2tsp onion powder (not granules)
-* 1/2tsp garlic powder (not granules)
+* 1/2tsp onion powder (not flakes)
+* 1/2tsp garlic powder (not flakes)
 * 1tsp Worcestershire sauce (optional)
 
 ### Tools needed:
