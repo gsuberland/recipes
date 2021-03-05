@@ -4,3 +4,4 @@ This repo is for food, not code. This is mostly for my own reference but feel fr
 * [Pork and pineapple skewers](pork-and-pineapple-skewers.md)
 * [Ghost ketchup](ghost-ketchup.md)
 * [Mushroom and peppercorn sauce](mushroom-peppercorn-sauce.md)
+* [Ultimate salmon and steamed rice](ultimate-salmon-and-steamed-rice.md)
